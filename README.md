@@ -41,7 +41,14 @@ Here's work done by me as a graphic designer.
 
 - Nayak Shrankhala poster : (https://www.canva.com/design/DAFJaBzYj4U/ZPda7EK1fEKr-Dbl2bXd9w/edit?utm_content=DAFJaBzYj4U&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
-- landing and login page : (https://www.canva.com/design/DAFQ0dFrmBg/OeBa9J0ChE1Db9mvSDHSBw/edit?utm_content=DAFQ0dFrmBg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- The Bizniz club ppt : (https://www.canva.com/design/DAE4fKYd7Yk/PxVhOQ6oX_3fqHCtILcJTw/edit?utm_content=DAE4fKYd7Yk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
-- landing and login page : (https://www.canva.com/design/DAFQ0dFrmBg/OeBa9J0ChE1Db9mvSDHSBw/edit?utm_content=DAFQ0dFrmBg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- Let's Get Down With Business (LinkedIn Banner) : (https://www.canva.com/design/DAE4WNPI600/d4esP3BbuDc40dyUWv4Vww/edit?utm_content=DAE4WNPI600&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+- The Bizniz club event ppt : (https://www.canva.com/design/DAE4fk0lhEM/qkSdjbs9wuUEpoPycQhpCA/edit?utm_content=DAE4fk0lhEM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+- Admin Panel : (https://www.canva.com/design/DAFDIkMP2_k/of7MJYZe4vKefC5UbCQObQ/edit?utm_content=DAFDIkMP2_k&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+
+
 
